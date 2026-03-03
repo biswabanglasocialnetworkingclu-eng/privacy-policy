@@ -1,2 +1,2 @@
 # privacy-policy
-Privacy Policy  For Biswa Bangla Social Networking Services 
+Privacy Policy for Live Circle — developed by We Work Media Ventures (operating as Biswa Bangla Social Networking Services)
